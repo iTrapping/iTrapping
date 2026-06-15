@@ -1,2 +1,3 @@
-![](https://i.pinimg.com/736x/23/03/de/2303de9f7d1f34da63593b0c96b38c2a.jpg)
-im working
+me lonelytree and ellernate is actually in a polycule but caleb244 isnt invited because i fucking hate him
+
+im working on this in 10000 years
